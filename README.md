@@ -89,5 +89,5 @@ This isn’t just a tool — it’s a movement toward smarter sharing.
 * 🌐 [Website](https://lin-k.ai)
 * 🐦 [Twitter](https://twitter.com/officiallinkai)
 * 💼 [LinkedIn](https://www.linkedin.com/company/officiallinkai)
-* 📘 [Facebook](https://facebook.com/officiallinkai)
+* 📘 [Facebook](https://www.facebook.com/people/Link-ai/61573090770259/)
 * 📸 [Instagram](https://instagram.com/officiallinkai)
